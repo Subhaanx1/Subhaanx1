@@ -1,1 +1,1 @@
-cybersecurity
+I am a passionate first-year student at Leeds Beckett University, pursuing a degree in Cybersecurity and Digital Forensics. Eager to learn and develop my skills, I am committed to building a strong foundation in protecting digital systems and investigating cybercrime. I am actively seeking opportunities to grow, collaborate, and contribute to the field as I begin my professional journey.
